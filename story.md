@@ -1,8 +1,6 @@
 # The Covenant
 
----
-
-### **Genre:** Urban, Fantasy.
+#### **Genre:** Urban, Fantasy.
 
 ---
 

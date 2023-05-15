@@ -19,3 +19,15 @@ Through the darkness, I see a man with his face buried deep in a woman's neck, b
 I stare at a young man dressed in long black trenchcoat, a gun that looked like something out of an antique shop in his had, and tattoos running down a side of his face, he stared back at me intently, studying me to see if I was bitten. After a moment, he aimed his crossbow into the darkness and told me to get behind him. I brace myself for the imminent fight.
 
 I had no idea what was going on, but I knew I had to trust this stranger with the gun. As we stood back to back, I could feel my heart pounding in my chest. The sound of footsteps echoed towards us, and my hands began to shake uncontrollably. The young man didn't flinch. He was calm, focused, and ready for whatever was coming our way. I closed my eyes and took a deep breath, praying that we would make it out alive.
+
+The sound of footsteps grew closer, and suddenly a group of figures appeared out of the darkness. They were dressed in black, their faces covered with tattoos, and they wielded weapons that looked like they were straight out of a medieval battle. The young man beside me pulled the trigger of his crossbow, and the bolt whizzed through the air, hitting one of the attackers in the chest. The group of attackers rushed towards us, and I screamed in terror.
+
+As the first attacker got close, I could feel my heart racing faster than ever before. I braced myself for the impact, but suddenly, he was lifted off his feet and thrown through the air. I looked up and saw a group of people dressed in long robes standing on the rooftops. They were holding staffs that glowed with a bright light, and they were chanting in a language I didn't recognize.
+
+The attackers started to retreat, and I let out a sigh of relief. I turned to the young man with the crossbow and asked, "Who are they?" He looked at me with a knowing smile and said, "They are the Covenant, a group of warriors who fight against supernatural forces that threaten our world." I was stunned. I had never heard of anything like this before. "Supernatural forces?" I repeated, trying to wrap my head around the concept.
+
+"Yes," he said. "Vampires, werewolves, demons...the list goes on. They all exist in our world, and it's up to the Covenant to protect humanity from them and you are one of us."
+
+"You are a wizard Harry!", he anounced. 
+
+

@@ -1,6 +1,6 @@
 # LeapfrogAssgn1
 
-**Team Members:** <br>
+<strong>**Team Members:** <br></strong>
 Astika Gurung <br>
 Brihat Lamichhaney <br>
 Shreyash Dahal <br>
